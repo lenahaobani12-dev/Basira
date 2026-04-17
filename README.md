@@ -70,8 +70,9 @@
 * Joud Bawareth — Legal Content & Data
 
 * demo link
+https://drive.google.com/drive/folders/1L7ZdSW3C70GiwfIMFis6MpUnHt_5icnu?usp=sharing
 
-https://drive.google.com/file/d/1xrdO7A2hrF-abTVR79zkqTq6wedPGQVP/view?usp=sharing
+ 
 
 
 
